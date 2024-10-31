@@ -10,7 +10,7 @@ Don't forget to follow my github
 
 Script ini gratis, Jika ketahuan di jual, Script ini akan langsung di hapus.
 Jangan lupa untuk mengikuti github ku
-* My WhatsApp [`Click Here`](https://wa.me/8801645461453?text=Assalamualaikum)
+* My WhatsApp [`Click Here`](https://wa.me/85212366938?text=Assalamualaikum owner i want to buy something )
 * My Facebook [`Click Here`](https://facebook.com/ainneboot)
 
 ## Viewer 👁️
